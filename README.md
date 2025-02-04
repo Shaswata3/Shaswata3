@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on C 
 - 📫 Reach me at instagram @shaswatabiswal
 - 😄 Pronouns: he/him
-- 😹 fun fact: "Creeper", was created in 1971.It displayed,catch me if you can!"
+- 😹 fun fact: "Creeper", was the first virus created in 1971.It displayed,catch me if you can!"
