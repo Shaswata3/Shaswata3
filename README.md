@@ -1,0 +1,6 @@
+- 👋 Hii, I’m @Shaswata3
+- 👀 I’m interested in Cybersecurity 
+- 🌱 I’m currently learning Pyhton,C and R
+- 💞️ I’m looking to collaborate on C 
+- 📫 Reach me at instagram @shaswatabiswal
+- 😄 Pronouns: he/him
